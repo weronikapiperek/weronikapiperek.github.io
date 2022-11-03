@@ -5,7 +5,8 @@
 
 ## Doświadczenie
 
-**Jak nauczyć się**
+**Jak nauczyć się**\
 od 2019
-**Astek Polska**
+
+**Astek Polska**\
 od 2019
